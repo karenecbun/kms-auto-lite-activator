@@ -1,0 +1,1 @@
+# kms-auto-lite-activator
